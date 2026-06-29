@@ -1,4 +1,4 @@
-# 
+# Smart new token sniper bot tools for Mac OS | Elite new token sniper bot tools for PC Windows. Featuring sandwich detection and format conversion — optimized for maximum performance on every platform.
 
 
 
